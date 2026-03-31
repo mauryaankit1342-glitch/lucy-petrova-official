@@ -19,3 +19,7 @@ Follow for more amazing dance content and viral performances!
 
 ---
 💃 Keep Dancing | 🚀 Stay Viral
+
+## 🔗 Watch on YouTube 🎬
+
+👉 [Click Here to Watch Lucy Petrova 💃🔥](https://www.youtube.com/@LucyPetrova-a)
